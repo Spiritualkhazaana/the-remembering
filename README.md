@@ -1,1 +1,3 @@
-# the-remembering
+# *The Remembering: A Journey Back to Self*
+## *“The Remembering: A Journey Back to Self” by Peter Kennedy, with editors Taylor Plimpton and Liz Kazandzhy, is a raw, honest memoir and guide for anyone grappling with burnout, identity crises, high achievement, and the spiritual hunger for a deeper, truer life. Across 18 immersive chapters, Kennedy traces his own fall from high-flying tech-founder success to emotional and spiritual rock bottom, and then shares the sometimes painful, always authentic journey of reconstructing identity from within. This is not a book about how to become someone new—it’s a companion for anyone yearning to remember who they truly are beneath the layers of striving, trauma, and conformity.* [More details…](https://spiritualkhazaana.com/the-remembering-a-journey-back-to-self/)
+## #remembering #theremembering #lettinggo #silence #stillness #spiritualjourney #spiritualgrowth
